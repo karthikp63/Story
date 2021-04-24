@@ -4,3 +4,9 @@ He wanted to be normal, just like all his friends.
 
 One day while Jack was riding his bike in his neighborhood, he found a sad little girl. He looked into the girl's mind and tried to find out what she was thinking about. 
 But sadly, his powers couldn't come to use. This is why he should've payed attention more often in his class. 
+afa
+fa
+fa
+gsthes
+afn
+dsfadfhmn
